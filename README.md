@@ -1,0 +1,2 @@
+# ampbyyuuya
+🚀 Deployed via Bot
